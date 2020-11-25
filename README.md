@@ -8,5 +8,5 @@
 - 🤔 I’m looking for help with how to become a full stack human xD.
 - 💬 Ask me about Web develop or Actions Movies.
 - 📫 How to reach me: Please contact me on <a href="https://www.linkedin.com/in/vin%C3%ADcius-andrade-7474a2159/">Linkedin</a>
-- 😄 Pronouns: Souza
+- 😄 Pronouns: Vinicius
 - ⚡ Fun fact: maybe im fun and i love adventures.
